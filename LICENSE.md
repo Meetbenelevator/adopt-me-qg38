@@ -1,4 +1,4 @@
-#  
+#  adopt me exclusive Scripts is the best adopt me Script, featuring no clip and invisibility. Safe and powerful for all your needs.
 
 
 
